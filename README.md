@@ -97,4 +97,4 @@ Syntax:
 |[Real Solly M](https://twitter.com/realsollym)|Happy Birthday Eddie! Wish you the best things in life. Continue to be an inspiration to others as you have been to me. |
 |[Vinyl Davyl](https://twitter.com/Vinylchi)| Happy birthday, Eddie! Highly appreciate what you do with the community, Big Amen to your secret prayers✨|
 |[Gizem Andreae](https://twitter.com/gigi_theandreae)| Happy Birthday Eddie! Wishing you all the best🥳🎈🎉 And here is my first contribution! 🔥 |
-|||
+||||[Anubhav Singhal](https://twitter.com/anubhav_sin)| Happy Birthday Eddie 🎈🎉 I wish you sound health, success and all the best. Thank you for contributing to my success in the Open source community.|
